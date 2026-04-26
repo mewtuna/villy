@@ -2,7 +2,7 @@
 
 <img src=https://i.ibb.co/rKkxgqS8/tumblr-2e30668e3dca4c21b4d38ffb06309c96-3dfe510c-2048.png> <br>
 
-$${\color{#f5a2c7}⋆˚ ✿ ˖°}$$
+$${\color{#f7e6ee}⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔}$$
 
  $${\color{#f8dbe8}𐔌   .  ⋮}$$ [ata](https://pinkbxtch.atabook.org/) $${\color{#e46da1}৻ꪆ}$$ [rentry](https://rentry.co/ryu_suu)  $${\color{#f8dbe8}⋮  ֹ   ₊ ꒱}$$ <br>
 
@@ -24,9 +24,13 @@ $${\color{#f5a2c7}⋆˚ ✿ ˖°}$$
  
 
  <br>
- <img src=https://i.ibb.co/DHCJCxxG/tumblr-06ad428d24c0cf5a2892e7adc683be3b-72b26376-100.png>
- 
- ![](https://komarev.com/ghpvc/?username=mewtuna&base=5755&color=f2a0cf&style=for-the-badge&label=ʚ+Pomefiore+ɞ)
+    
+ <img src=https://i.ibb.co/DHCJCxxG/tumblr-06ad428d24c0cf5a2892e7adc683be3b-72b26376-100.png> <br>
+    
+  ![](https://komarev.com/ghpvc/?username=mewtuna&base=5755&color=f2a0cf&style=for-the-badge&label=ʚ+Pomefiore+ɞ)
+   
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=true&theme=novatorem&show_offline=false&background_color=f9cfe6&interchange=true&profanity=false&bar_color=e46da1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true) <br>
+
   
 
 
