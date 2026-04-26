@@ -18,7 +18,7 @@ $${\color{#f5a2c7}⋆˚ ✿ ˖°}$$
 
   
 
-<img src=https://i.ibb.co/wZpK646F/tumblr-7056d7d4f9386b6b80c719ce8de6e3aa-3b821928-2048.png align=left width=650> <br>
+<img src=https://i.ibb.co/wZpK646F/tumblr-7056d7d4f9386b6b80c719ce8de6e3aa-3b821928-2048.png align=left width=550> <br>
 
 
  
