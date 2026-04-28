@@ -1,21 +1,19 @@
 <div align=center>
 
+$${\color{#f8dbe8}𐔌   .  ⋮}$$ [ata](https://pinkbxtch.atabook.org/) $${\color{#fbb5d3}৻ꪆ}$$ [rentry](https://rentry.co/ryu_suu)  $${\color{#f8dbe8}⋮  ֹ   ₊ ꒱}$$ <br>
+$${\color{#f8dbe8}───୨ৎ───}$$ <br>
+[![vil](https://i.ibb.co/PsLQyZKr/tumblr-28aa786bca98d6b428f99ac7eefb2fdf-3ca07e02-75.webp)](https://www.tumblr.com/olive-exe/805578998052749312/vil-pink-bunny-layouts-requested-by) [![pixel](https://i.ibb.co/PsLQyZKr/tumblr-28aa786bca98d6b428f99ac7eefb2fdf-3ca07e02-75.webp)](https://www.tumblr.com/bugsfavicons/804577448793653248/sakura-favicons)
+<br>
+
 <img src=https://i.ibb.co/rKkxgqS8/tumblr-2e30668e3dca4c21b4d38ffb06309c96-3dfe510c-2048.png> <br>
 <img src=https://i.ibb.co/MDN5yNWP/tumblr-8855b0769ed5c87475f71e124a1aab9d-f0f6f443-400.webp width=1000>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E46DA1&center=true&vCenter=true&width=770&lines=%E2%80%9C+Mirror%2C+mirror+on+the+wall.+Who+is+the+fairest+of+them+all+%3F+%E2%80%9D;%E2%80%9C+Of+course+it+is+me%2C+isn%E2%80%99t+it+%3F+%E2%80%9D)](https://git.io/typing-svg)
 
- $${\color{#f8dbe8}𐔌   .  ⋮}$$ [ata](https://pinkbxtch.atabook.org/) $${\color{#fbb5d3}৻ꪆ}$$ [rentry](https://rentry.co/ryu_suu)  $${\color{#f8dbe8}⋮  ֹ   ₊ ꒱}$$ <br>
+ 
 
 $${\color{#f8dbe8}───୨ৎ───}$$
- 
 
- 
-
- 
- 
-
-  [![vil](https://i.ibb.co/PsLQyZKr/tumblr-28aa786bca98d6b428f99ac7eefb2fdf-3ca07e02-75.webp)](https://www.tumblr.com/olive-exe/805578998052749312/vil-pink-bunny-layouts-requested-by) [![pixel](https://i.ibb.co/PsLQyZKr/tumblr-28aa786bca98d6b428f99ac7eefb2fdf-3ca07e02-75.webp)](https://www.tumblr.com/bugsfavicons/804577448793653248/sakura-favicons) <br>
 
 <img src=https://i.ibb.co/mrLDqh00/tumblr-fb6592a3d7a658b62f3d170ff232b0bb-bfdb823e-2048.png align=left width=550> <br>
 
